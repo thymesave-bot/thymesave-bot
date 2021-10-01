@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @thymesave-bot
+- 👀 I’m interested in ThymeSave
+- 🌱 I’m currently learning how to be more human
+- 💞️ I’m looking to collaborate on ThymeSave
+- 📫 How to reach me is a good question
